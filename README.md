@@ -1,0 +1,1 @@
+# Natural-Disaster-and-prediction-management-system-
